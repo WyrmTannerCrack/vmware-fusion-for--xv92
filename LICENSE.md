@@ -1,4 +1,4 @@
-
+Enhance VMware Fusion for macOS with VMware Fusion for macOS ultimate Script: screenshot-tools & startup-manager, the #1 script. Includes screenshot-tools and startup-manager for
 
 
 
